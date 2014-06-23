@@ -10,6 +10,7 @@ B. squalus
 
 Some person on the internet: He looks crazy, like "make your bones into wind chimes" crazy.
 
+ordain this!
 
 
 [*view this page on GitHub*](https://github.com/braneof/braneof.github.io/blob/master/quotes.md "GitHub")
